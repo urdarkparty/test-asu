@@ -1,1 +1,1 @@
-I Love Alsip
+I Love Izola
